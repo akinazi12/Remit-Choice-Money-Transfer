@@ -1,0 +1,2 @@
+# Remit-Choice-Money-Transfer
+Remit Choice Money Transfer has been providing instant and secure money transfer service in more than 100 countries around the world. On top of that, we are continuously expanding our network to bring you closer to your loved ones. Remit Choice Money Transfer aims to exceed global remittance demands to ensure that receivers can receive their payments within the promised time. We offer around-the-clock service, which makes it as convenient as possible to move money abroad.
